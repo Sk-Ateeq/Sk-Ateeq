@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on **Github**
 
-- 📫 How to reach me **shaikateeqahmed@12@gmail.com**
+- 📫 How to reach me **shaikateeqahmed12@gmail.com**
 
 - ⚡ Fun fact **There's Nothing in the world more Powerful than a good story**
 
